@@ -1,0 +1,1 @@
+If you want to ignore the virus, log out or restart your computer.
